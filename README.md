@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ManuMan4774
+- 👀 I’m interested in Friday Night Funkyn
+- 🌱 I’m currently learning Animation
+- 💞️ I’m looking to collaborate on mods by animating the characters
+- 📫 You can contact me by discord: Manu_Man_4774#9872
